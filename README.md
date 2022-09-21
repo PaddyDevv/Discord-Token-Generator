@@ -7,3 +7,7 @@ Thanks To Hammad For Doing The node Lib Check It Our Yourself! https://www.npmjs
 Star For More Projects Like This!
 
 Have A Good Day! 
+
+
+
+#Also To Get nOCaptchaAI access register here https://nocaptchaai.com/  please also say that i refered u when ur signing up it says the github who refered u please like this :D
